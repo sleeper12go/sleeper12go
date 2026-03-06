@@ -21,3 +21,4 @@ now i can commit
 fell good to do it
 ok  wesleep
 today am angry
+and now am sick i wait my body to gg
