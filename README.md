@@ -34,6 +34,7 @@ and grren
 yesterday i say green 
 today green
 and green
+time to buy
 red 3 day and rebound
 ok
 tomorrow green
